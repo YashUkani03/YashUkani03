@@ -1,5 +1,5 @@
 # 💫 Yash Ukani
-🔭 I’m currently working on fullstack development<br>👯 I’m looking to collaborate on linkedin<br> Ahemdabad <br>
+🔭 I’m currently working on fullstack development<br>👯 I’m looking to collaborate on linkedin<br>
 
 
 ## 🌐 Socials:
